@@ -534,6 +534,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 # Isabella RH
 
 - O Lemos podia ser uma carta de clash royale - 28/12/2023
+  ![image_2024_01_02T16_14_18_126Z](https://github.com/oraculum/perolas-vr/assets/77414867/2393ab04-947e-4cdc-b3e9-4e20446e1c4c)
 
 --------
 
