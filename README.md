@@ -441,6 +441,8 @@ Não dá pra falar com os caras da stone não, fica num jogo de empurra - 27/10/
 
 Damon: Isso é coisa de viado, Nathan: ainda mais preto. - 16/11/2023
 
+Nem sempre a tarefa mais importante é a mais interessante. - 20/02/2024
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
