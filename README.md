@@ -528,6 +528,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Floppinguim tava cortando o panettone e o Nathan vira e fala: "sabia que voce esta cortando errado? Tem um video de uma mulher da bauducco mostrando como faz". Floppinguim vira e fala: "Mulher nao tem que saber nada nao, eu corto do jeito que quiser". Ele decidiu soltar essa fala machista perto da Geisa que fechou a cara na hora - 27/12/2023
 - (Isabela entra na sala e entrega um chocolate de presente de aniversario pra Bia) Daedrick vira pra bia e pergunta "tá fazendo quantos anos?", ela responde "17 anos", ai o flopinguim vira e fala "só se for em cada perna né" - 16/02/2024
 - E eu aqui rasgando o cu com a unha - 19/02/2024
+- Era o nathan e a piscina que eu tava pensando - 04/03/2024
 --------
 
 # Jorge (que nem pega)
