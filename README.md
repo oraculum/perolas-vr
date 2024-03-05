@@ -445,6 +445,8 @@ Damon: Isso é coisa de viado, Nathan: ainda mais preto. - 16/11/2023
 
 Nem sempre a tarefa mais importante é a mais interessante. - 20/02/2024
 
+Chamam o Fernando de paramanguape, Nathan: não é mais fácil insultar ele de nordestino? - 05/03/2024
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
