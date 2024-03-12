@@ -447,6 +447,8 @@ Nem sempre a tarefa mais importante é a mais interessante. - 20/02/2024
 
 Chamam o Fernando de paramanguape, Nathan: não é mais fácil insultar ele de nordestino? - 05/03/2024
 
+Isabella: esse daqui é o Nathan, se apresente aí, Nathan: Oi, eu sou o Nathan! - 12/03/2024
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
