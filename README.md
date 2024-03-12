@@ -533,6 +533,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - (Isabela entra na sala e entrega um chocolate de presente de aniversario pra Bia) Daedrick vira pra bia e pergunta "tá fazendo quantos anos?", ela responde "17 anos", ai o flopinguim vira e fala "só se for em cada perna né" - 16/02/2024
 - E eu aqui rasgando o cu com a unha - 19/02/2024
 - Era o nathan e a piscina que eu tava pensando - 04/03/2024
+- Nathan, se eu for com a bunda empinada vc me leva na moto - 12/03/2024
 --------
 
 # Jorge (que nem pega)
