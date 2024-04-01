@@ -269,6 +269,7 @@ Pra quem não aguenta duas, tem que tomar uma bola só - 01/09/2022
 
 Nathan, você está conseguindo comer o negócio duro mesmo ? - 26/09/2022 (questionando sobreo o açai congelado)
 
+
 ___________________________________________________________ 
 
 # perolas Damon
@@ -534,6 +535,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - E eu aqui rasgando o cu com a unha - 19/02/2024
 - Quando eu penso na FOA, eu penso em duas coisas piscina e o Nathan - 04/03/2024
 - Nathan, se eu for com a bunda empinada vc me leva na moto - 12/03/2024
+- Galera falou: nossa vamos contratar uma mulher gostosa para o dev. Flop: Ah, mas tem o Nathan - 1/4/2024
 --------
 
 # Jorge (que nem pega)
@@ -555,6 +557,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - "Léo, você me libera?" Leo: "Eu não, lá ele" - 16/01/2024
 - Nossa, esqueci de tomar ferro de novo! - 23/01/2024
 - Estava o diogo e nathan conversando sobre fazer um grupo de estudos e o que poderiam estudar. Quando literalmente do nada e SEM SER CONVIDADO PREVIAMENTE, Daedrick e vira pro lado e pergunta pro flopinguim   "Você nao quer participar nao?" - 29/01/2024
+- Nathan é o contrário do ciúme ele é cheio de amor para dar - 1/4/2024
 
 # Barbara
 
