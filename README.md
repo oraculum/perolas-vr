@@ -243,6 +243,8 @@ Temos que comer 20 minutos depois de almoçar - 04/12/2023
 O Jorge hoje é abobado - 05/12/2024
 
 Você pode olhar para o Daegrick e achar que ele parece bobo, não tou falando que ele é bobo, mas você pode achar ao olhar - 29/02/2024
+
+Geralmente o Lemos chega de mau humor no serviço - 08/05/2014
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
