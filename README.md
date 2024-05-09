@@ -452,6 +452,8 @@ Chamam o Fernando de paramanguape, Nathan: não é mais fácil insultar ele de n
 
 Isabella: esse daqui é o Nathan, se apresente aí, Nathan: Oi, eu sou o Nathan! - 12/03/2024
 
+Damon: A pessoa estragou o banheiro ficou fedendo desde manhã até a tarde, Nathan: aquele vez que foi eu e você. - 09/05/2024
+
 ----------------
 
 # Perolas do Lucas Segundo (filho do "Que nem pega")
