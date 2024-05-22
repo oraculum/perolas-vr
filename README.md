@@ -245,6 +245,9 @@ O Jorge hoje é abobado - 05/12/2024
 Você pode olhar para o Daegrick e achar que ele parece bobo, não tou falando que ele é bobo, mas você pode achar ao olhar - 29/02/2024
 
 Geralmente o Lemos chega de mau humor no serviço - 08/05/2014
+
+Nathan: eu era gordinho quando pequeno. Diogo: gordinho como dá um exemplo, tipo o Lemos? - 22/05/2014
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
