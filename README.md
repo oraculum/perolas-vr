@@ -316,6 +316,8 @@ Lemos, você vai usar um terno slim mesmo sendo gordo? - 24/06/2022
  se o lucas colocar uma peruca, eu saio com ele desfilando na cidade - 02/05/2023
 
  É muito gostoso sentir o anel do lado esquerdo no dedão - 16/11/2023
+
+ Desgraça alheia é colírio pros meus olhos - 10/06/2024
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
