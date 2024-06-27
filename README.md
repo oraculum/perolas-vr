@@ -561,6 +561,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
   
   ![image_2024_01_02T16_14_18_126Z](https://github.com/oraculum/perolas-vr/assets/77414867/2393ab04-947e-4cdc-b3e9-4e20446e1c4c)
 
+- Nathan eu vou comer seu bolo (na despedida no Nathan) - 27/06/2024 
 --------
 
 # Daegrick
