@@ -534,6 +534,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 # Wanver Bolseiro
 
 - Pow eu tenho um curso lá em casa de c# que tem 18GB de aulas zipado, mas quando descompacto vira 100MB - 19/07/2023
+- Eu estava numa situação muito ruim da minha vida -- foi quando eu entrei aqui na vr - 05/07/2024
 
 --------
 
