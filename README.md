@@ -250,6 +250,8 @@ Nathan: eu era gordinho quando pequeno. Diogo: gordinho como dá um exemplo, tip
 
 Eu sou praticamente o patrão do Lemos - 17/06/2024
 
+Amanda seu cabelo é sem vida e sem cor - 01/08/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
