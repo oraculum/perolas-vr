@@ -574,11 +574,18 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Estava o diogo e nathan conversando sobre fazer um grupo de estudos e o que poderiam estudar. Quando literalmente do nada e SEM SER CONVIDADO PREVIAMENTE, Daedrick e vira pro lado e pergunta pro flopinguim   "Você nao quer participar nao?" - 29/01/2024
 - Nathan é o contrário do ciúme ele é cheio de amor para dar - 1/4/2024
 
+-----------
+
 # Barbara
 
 - A Ana ta precisando tomar um floratil - 16/02/2024
 - Eu posso falar do outros mesmo, o que o ouvido não vê o coração não sente - 16/02/2024
 
+-----------
+
+# Elvirinho / Vitor
+
+- Que vc olha para o Lemos e nem parece que ele é bom
 ____________________________________________________________
 
 # Amanda
