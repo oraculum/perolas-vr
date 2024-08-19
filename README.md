@@ -581,13 +581,16 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - A Ana ta precisando tomar um floratil - 16/02/2024
 - Eu posso falar do outros mesmo, o que o ouvido não vê o coração não sente - 16/02/2024
 
------------
-
-# Elvirinho / Vitor
-
-- Que vc olha para o Lemos e nem parece que ele é bom
 ____________________________________________________________
 
 # Amanda
 
 - Eu vou começar pelo primeiro né, que no caso é o último. - 08/05/2024
+
+-----------
+
+# Elvirinho / Vitor
+
+- Que vc olha para o Lemos e nem parece que ele é bom - 19/08/2024
+
+  
