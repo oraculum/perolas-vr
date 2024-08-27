@@ -596,4 +596,8 @@ ____________________________________________________________
 
 - Que vc olha para o Lemos e nem parece que ele é bom - 19/08/2024
 
-  
+# João Otávio
+
+- Damon, como faz pra configurar a impressão de carne no sistema?. - 27/08/2024
+
+-----------
