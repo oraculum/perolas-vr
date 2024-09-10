@@ -591,7 +591,7 @@ ____________________________________________________________
 - Amanda você sabe inglês? não, eu só ouço bem, mas escrever e ler não. 15/04/2024
 - Eu vou começar pelo primeiro né, que no caso é o último. - 08/05/2024
 - Diogo: Amanda, você tem dipirona? R: tenho sim, é pra quem? Diogo: Pra Giullia, R: ah, tenho não - 03/09/2024
-
+- Vergonha é roubar e não pagar - 10/09/2024
 -----------
 
 # Elvirinho / Vitor
