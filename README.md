@@ -254,6 +254,8 @@ Amanda seu cabelo é sem vida e sem cor - 01/08/2024
 
 Você é muito linguarudo Lemos, na moral - 22/08/2024
 
+Amanda porque vc está com essa cara de cachorro morto, desculpa quiz dizer cachorro abandonado - 12/09/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
