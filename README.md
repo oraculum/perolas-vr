@@ -256,6 +256,8 @@ Você é muito linguarudo Lemos, na moral - 22/08/2024
 
 Amanda porque vc está com essa cara de cachorro morto, desculpa quiz dizer cachorro abandonado - 12/09/2024
 
+Eu sou o melhor marido do mundo, minha mulher que é ingrata - 17/09/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
