@@ -258,6 +258,8 @@ Amanda porque vc está com essa cara de cachorro morto, desculpa quiz dizer cach
 
 Eu sou o melhor marido do mundo, minha mulher que é ingrata - 17/09/2024
 
+Barbosa é gente boa, só é o maior bobão - 18/09/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
