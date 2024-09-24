@@ -260,6 +260,8 @@ Eu sou o melhor marido do mundo, minha mulher que é ingrata - 17/09/2024
 
 Barbosa é gente boa, só é o maior bobão - 18/09/2024
 
+Se você pedir perdão pra Deus e pra mim é a mesma coisa - 24/09/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
