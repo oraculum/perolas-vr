@@ -601,6 +601,7 @@ ____________________________________________________________
 - Diogo: Amanda, você tem dipirona? R: tenho sim, é pra quem? Diogo: Pra Giullia, R: ah, tenho não - 03/09/2024
 - Vergonha é roubar e não pagar - 10/09/2024
 - Agora não consigo parar de pensar no Zé Tech(tem contexto) - 24/09/2024
+- Diogo você vai menstruar que dia? - 02/10/2024
 -----------
 
 # Elvirinho / Vitor
