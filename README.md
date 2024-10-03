@@ -548,6 +548,8 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Pow eu tenho um curso lá em casa de c# que tem 18GB de aulas zipado, mas quando descompacto vira 100MB - 19/07/2023
 - Eu estava numa situação muito ruim da minha vida -- foi quando eu entrei aqui na vr - 05/07/2024
 - Lucas: Falar indío é perjorativo, Wanver: não é indío, é afro-descendente. - 23/08/2024
+- Wanver no dia da briga com o Daegrick: Você acha que eu tou aqui para que? Tou aqui para aprender cara. Damon: Não vc está aqui para trabalhar. - 30/08/2024
+- No mesmo dia Damon: volta lá pra cima, pede desculpa para o Daegrick. Wanver: tá um clima ruim já - 30/08/2024
 
 --------
 
@@ -613,12 +615,5 @@ ____________________________________________________________
 # João Otávio
 
 - Damon, como faz pra configurar a impressão de carne no sistema?. - 27/08/2024
-
------------
-
-# Wanver/Wandinho/Wanverine
-
-- Wanver no dia da briga com o Daegrick: Você acha que eu tou aqui para que? Tou aqui para aprender cara. Damon: Não vc está aqui para trabalhar. - 30/08/2024
-- No mesmo dia Damon: volta lá pra cima, pede desculpa para o Daegrick. Wanver: tá um clima ruim já - 30/08/2024
 
 -----------
