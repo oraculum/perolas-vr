@@ -334,6 +334,8 @@ Lemos, você vai usar um terno slim mesmo sendo gordo? - 24/06/2022
  É muito gostoso sentir o anel do lado esquerdo no dedão - 16/11/2023
 
  Desgraça alheia é colírio pros meus olhos - 10/06/2024
+
+ Damon pro Wanver: você arrebenta? - perguntou isso de uma mulher que morreu de cirurgia. - 03/10/2024
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
