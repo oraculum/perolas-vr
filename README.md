@@ -264,6 +264,8 @@ Se você pedir perdão pra Deus e pra mim é a mesma coisa - 24/09/2024
 
 Pra que vou limpar o filtro que deixei aberto se tem outro trouxa para limpar - Diogo depois de ter deixado o filtro aberto por 20 minutos - 3/10/2024
 
+Daegrick: você toma aguá lá embaixo? Diogo: não, só a tarde.
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
