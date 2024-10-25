@@ -264,11 +264,15 @@ Se você pedir perdão pra Deus e pra mim é a mesma coisa - 24/09/2024
 
 Pra que vou limpar o filtro que deixei aberto se tem outro trouxa para limpar - Diogo depois de ter deixado o filtro aberto por 20 minutos - 3/10/2024
 
-Daegrick: você toma aguá lá embaixo? Diogo: não, só a tarde.
+Daegrick: você toma aguá lá embaixo? Diogo: não, só a tarde. 20/10/2024
 
-Diogo: nossa Vampira (Gabriela Banco) você está parecendo o Kung Lao do Mortal Kombat.
+Diogo: nossa Vampira (Gabriela Banco) você está parecendo o Kung Lao do Mortal Kombat. 25/10/2024
 
 ![](https://static.wikia.nocookie.net/mortalkombat/images/1/19/Kung_Lao11.jpg/revision/latest/scale-to-width-down/350?cb=20200127024537&path-prefix=pt)
+
+Diogo: Não tava querendo chamar ela de Kung Lao e sim de "sucess trid" aquele jogo. Lemos: Você quiz dizer Sunset Riders. 25/10/2024
+
+![](https://i.ytimg.com/vi/lvoAmeDq3sU/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCFwVIRVXNda9SmuzpnpxaaHFyooQ)
 
 ___________________________________________________________
 
