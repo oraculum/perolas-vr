@@ -270,7 +270,7 @@ Diogo: nossa Vampira (Gabriela Banco) você está parecendo o Kung Lao do Mortal
 
 ![](https://static.wikia.nocookie.net/mortalkombat/images/1/19/Kung_Lao11.jpg/revision/latest/scale-to-width-down/350?cb=20200127024537&path-prefix=pt)
 
-Diogo: Não tava querendo chamar ela de Kung Lao e sim de "sucess trid" aquele jogo. Lemos: Você quiz dizer Sunset Riders. 25/10/2024
+Diogo: Não tava querendo chamar ela de Kung Lao e sim de "sunse triedis" aquele jogo. Lemos: Você quiz dizer Sunset Riders. 25/10/2024
 
 ![](https://i.ytimg.com/vi/lvoAmeDq3sU/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCFwVIRVXNda9SmuzpnpxaaHFyooQ)
 
