@@ -266,6 +266,10 @@ Pra que vou limpar o filtro que deixei aberto se tem outro trouxa para limpar - 
 
 Daegrick: você toma aguá lá embaixo? Diogo: não, só a tarde.
 
+Diogo: nossa Vampira (Gabriela Banco) você está parecendo o Kung Lao do Mortal Kombat.
+
+![](https://static.wikia.nocookie.net/mortalkombat/images/1/19/Kung_Lao11.jpg/revision/latest/scale-to-width-down/350?cb=20200127024537&path-prefix=pt)
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
