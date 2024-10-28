@@ -623,7 +623,7 @@ ____________________________________________________________
 # Elvirinho / Vitor
 
 - Que vc olha para o Lemos e nem parece que ele é bom - 19/08/2024
-
+![image](https://github.com/user-attachments/assets/d53031aa-28ad-4e9e-836d-36943b4aae98)
 ----------
 
 # João Otávio
