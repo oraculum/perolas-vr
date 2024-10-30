@@ -274,6 +274,8 @@ Diogo: Não tava querendo chamar ela de Kung Lao e sim de "sunse triedis" aquele
 
 ![](https://i.ytimg.com/vi/lvoAmeDq3sU/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCFwVIRVXNda9SmuzpnpxaaHFyooQ)
 
+Nossa amanda vc é muito metida e SEBOSA - 30/10/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
