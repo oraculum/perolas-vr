@@ -302,7 +302,7 @@ Pra quem não aguenta duas, tem que tomar uma bola só - 01/09/2022
 
 Nathan, você está conseguindo comer o negócio duro mesmo ? - 26/09/2022 (questionando sobreo o açai congelado)
 
-
+Diogo: O Lemos quando bebe fica inteligente. Lemos: Então está explicado porque vc é assim, pq vc não bebe né diogo. 31/10/2024
 ___________________________________________________________ 
 
 # perolas Damon
