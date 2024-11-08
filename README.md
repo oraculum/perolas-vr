@@ -631,5 +631,6 @@ ____________________________________________________________
 # João Otávio
 
 - Damon, como faz pra configurar a impressão de carne no sistema?. - 27/08/2024
+- Vou ficar o dia inteiro com a linguinha pra fora - 08/11/2024
 
 -----------
