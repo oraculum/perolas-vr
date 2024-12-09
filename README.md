@@ -276,6 +276,8 @@ Diogo: Não tava querendo chamar ela de Kung Lao e sim de "sunse triedis" aquele
 
 Nossa amanda vc é muito metida e SEBOSA - 30/10/2024
 
+Susto foi eu que tomei com a foto da Barbara (RH) - 09/12/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
