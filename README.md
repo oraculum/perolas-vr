@@ -625,6 +625,7 @@ ____________________________________________________________
 - Agora não consigo parar de pensar no Zé Tech(tem contexto) - 24/09/2024
 - Diogo você vai menstruar que dia? - 02/10/2024
 - Damon: A galera limita gosta de usar o teclado alfanúmero mesmo, Amanda: realmente, eu gosto de usar mesmo - 08/11/2024
+- João: é verdade, a Amanda não sabe um monte de coisa. - 10/12/2024
 -----------
 
 # Elvirinho / Vitor
