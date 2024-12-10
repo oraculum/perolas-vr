@@ -209,8 +209,6 @@ se tiver errado eu pago com a rosquinha - 08/08/2022
 
 da uma olhada no meu botão - 08/08/2022
 
-Damon: e aí Diogo você foi comido no avião? Diogo: fui, ops... - 17/10/2022
-
 O Lemos não tem muita credibilidade não - 12/12/2022
 
 Diogo vira e fala pro Damon depois de terminar a live com o Nathan: Voce ta treinando ele com o senso de WarShip? Digo, WannaShip? - Ai o Lemos perguntou: Voce nao quis dizer "ownership"?. (Batalha naval = eu quero barco = propriedade) - 07/03/2023
