@@ -568,6 +568,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Lucas: Falar indío é perjorativo, Wanver: não é indío, é afro-descendente. - 23/08/2024
 - Wanver no dia da briga com o Daegrick: Você acha que eu tou aqui para que? Tou aqui para aprender cara. Damon: Não vc está aqui para trabalhar. - 30/08/2024
 - No mesmo dia Damon: volta lá pra cima, pede desculpa para o Daegrick. Wanver: tá um clima ruim já - 30/08/2024
+- Eu só chamo o felipe da implantação de phelps, Diogo: por que phelps? Wanver: ueh, Felipe Phelps, João: não é Michael Phelps?
 
 --------
 
