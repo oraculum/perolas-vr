@@ -641,3 +641,10 @@ ____________________________________________________________
 - Qual vocês ficam mais motivados, quando te motivam ou quando te afrentam?
 - É verdade, a Amanda não sabe um monte de coisa. - 10/12/2024
 -----------
+
+# Elviro (vitor)
+
+- Pediu perdão depois de ser soberbo
+
+![](https://p190.p3.n0.cdn.zight.com/items/E0uNEAgY/e1be9e33-0144-41d6-b014-b898610487da.jpg?v=cbb87937f9e22ddcd3374ca437656d6a)
+
