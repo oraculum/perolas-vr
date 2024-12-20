@@ -276,6 +276,8 @@ Nossa amanda vc é muito metida e SEBOSA - 30/10/2024
 
 Susto foi eu que tomei com a foto da Barbara (RH) - 09/12/2024
 
+Se a Aline me desse um teclado mecanico de presente qdo namoravamos, casava com ela no outro dia - 20/12/2024
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
