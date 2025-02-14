@@ -643,7 +643,7 @@ ____________________________________________________________
 - Qual vocês ficam mais motivados, quando te motivam ou quando te afrentam?
 - É verdade, a Amanda não sabe um monte de coisa. - 10/12/2024
 - Lucão: Você é homem de uma mulher só. PirikitoLOKO: Mas ainda não achei nenhuma mulher... 06/02/2025
-- Você gosta de carioca ou são paulino? - 14/02/2025
+- Amanda, você gosta de carioca ou são paulino? - 14/02/2025
 -----------
 
 # Elviro (vitor)
