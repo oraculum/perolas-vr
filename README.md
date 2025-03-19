@@ -654,6 +654,12 @@ ____________________________________________________________
 
 ![](https://p190.p3.n0.cdn.zight.com/items/E0uNEAgY/e1be9e33-0144-41d6-b014-b898610487da.jpg?v=cbb87937f9e22ddcd3374ca437656d6a)
 
+- Vitor: Homossesualismo é doença.
+  - Pessoal do dev: peraí vc disse que é doença?
+  - Vitor: Não, corrigindo não é doença, é disturbio mental.
+ 
+- Mulher tem que usar sair 4 dedos abaixo do joelho e não pode usar calça.
+
 # Layanne
 
 ![perola-layanne](https://github.com/user-attachments/assets/d5182ce9-52e8-44d0-bcc8-b0f53e0fa93c)
