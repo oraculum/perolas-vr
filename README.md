@@ -278,6 +278,8 @@ Susto foi eu que tomei com a foto da Barbara (RH) - 09/12/2024
 
 Se a Aline me desse um teclado mecanico de presente qdo namoravamos, casava com ela no outro dia - 20/12/2024
 
+Damon: a Amanda sempre vem parecendo que está bem, nenhuma vez ela chegou para trabalhar igual o Periquito. Diogo: a então ela nunca veio parecendo um bobo alegre! 04/04/2025
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
