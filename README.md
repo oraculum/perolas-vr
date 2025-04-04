@@ -280,6 +280,8 @@ Se a Aline me desse um teclado mecanico de presente qdo namoravamos, casava com 
 
 Damon: a Amanda sempre vem parecendo que está bem, nenhuma vez ela chegou para trabalhar igual o Periquito. Diogo: a então ela nunca veio parecendo um bobo alegre! 04/04/2025
 
+O fernando quando colocou o uniforme da autocom ficou igual uma baleia - 04/04/2025
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
