@@ -282,6 +282,8 @@ Damon: a Amanda sempre vem parecendo que está bem, nenhuma vez ela chegou para 
 
 O fernando quando colocou o uniforme da autocom ficou igual uma baleia - 04/04/2025
 
+Diogo: Vou almoçar em casa e deixar o carro lá. Lemos: Vai voltar de ônibus? Diogo: Não, vou voltar de carro 07/04/2025
+
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
