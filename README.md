@@ -644,6 +644,7 @@ ____________________________________________________________
 - Cuidado pra quando você casar com o Ronald, Amanda: Vai demorar - 17/12/2024
 - Lucas: Qual é o tom de deboche do Diogo? Amanda: É o tom normal dele 04/02/2025
 - Se eu tiver 30 pecados, o Damon vai preencher a lista inteira - 13/02/2025
+- Interesse não, oportunidade(sobre Ana júlia seguir o Damon no Instagram) - 15/05/2025
 -----------
 
 # Elvirinho / Vitor
