@@ -319,6 +319,10 @@ Nathan, você está conseguindo comer o negócio duro mesmo ? - 26/09/2022 (ques
 Diogo: O Lemos quando bebe fica inteligente. Lemos: Então está explicado porque vc é assim, pq vc não bebe né diogo. 31/10/2024
 
 Damon você quer dormir na minha cama? 27/03/2025 (quando questionado se deixa o quarto aberto)
+
+Parabens do Lemos para o Damon 6/2 
+
+![](https://p190.p3.n0.cdn.zight.com/items/Wnu9ZxYe/327f9cfb-5a28-4594-9ddf-fb1b8ef92401.jpg?v=ca6bf3ce29679a8ee1466c992393e6b9)
 ___________________________________________________________ 
 
 # perolas Damon
