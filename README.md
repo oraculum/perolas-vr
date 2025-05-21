@@ -649,6 +649,7 @@ ____________________________________________________________
 - Lucas: Qual é o tom de deboche do Diogo? Amanda: É o tom normal dele 04/02/2025
 - Se eu tiver 30 pecados, o Damon vai preencher a lista inteira - 13/02/2025
 - Interesse não, oportunidade(sobre Ana júlia seguir o Damon no Instagram) - 15/05/2025
+- Damon: Então se chegar um cara negão, pedindo pra namorar você, você namora? Amanda: claro que não. - 21/05/2025
 -----------
 
 # Elvirinho / Vitor
