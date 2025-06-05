@@ -653,6 +653,7 @@ ____________________________________________________________
 - Damon: Então se chegar um cara negão, pedindo pra namorar você, você namora? Amanda: claro que não. - 21/05/2025
 - Eu já falei pro wanver parar de se fazer de difícil e pegar logo o meu número - 29/05/2025
 - Mas o Damon é bem ruim no português mesmo, tem que ficar de olho nos posts que ele faz - 05/06/2025
+- João mostrando a foto do David Beckham, a Amanda: nossa, muito bonito, parece o meu ex namorado. - 05/06/2025
 -----------
 
 # Elvirinho / Vitor
