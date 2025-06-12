@@ -674,6 +674,7 @@ ____________________________________________________________
 - Lucão: Você é homem de uma mulher só. PirikitoLOKO: Mas ainda não achei nenhuma mulher... 06/02/2025
 - Amanda, você gosta de carioca ou são paulino? - 14/02/2025
 - Larissa, estão querendo colocar nós contra a gente - 28/05/2025
+- Diogo, fala pra Amanda que ela precisa fazer a unha - 12/06/2025
 -----------
 
 # Elviro (vitor)
