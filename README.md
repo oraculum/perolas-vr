@@ -655,6 +655,8 @@ ____________________________________________________________
 - Mas o Damon é bem ruim no português mesmo, tem que ficar de olho nos posts que ele faz - 05/06/2025
 - João mostrando a foto do David Beckham, a Amanda: nossa, muito bonito, parece o meu ex namorado. - 05/06/2025
 - Amanda lendo as pérolas do Lucas, ueh, qual o problema, eu também preciso tomar ferro. - 05/06/2025
+- João: Qual a diferença do mais escuro e do mais claro? - Amanda: O mais escuro é ruim - 12/06/2025
+- Lucas: tenho uns pull request pra revisar, Amanda você quer sair do Júnior? - Amanda - Quem é Júnior? - 12/06/2025
 -----------
 
 # Elvirinho / Vitor
