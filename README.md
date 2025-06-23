@@ -592,6 +592,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - No mesmo dia Damon: volta lá pra cima, pede desculpa para o Daegrick. Wanver: tá um clima ruim já - 30/08/2024
 - Eu só chamo o felipe da implantação de phelps, Diogo: por que phelps? Wanver: ueh, Felipe Phelps, João: não é Michael Phelps?
 - Wanver para Amanda: pode me humilhar que eu gosto de ser humilhado - 05/06/25
+- Agora sem pederastia, não tem como não olhar pra mulher - 23/06/2025
 
 --------
 
