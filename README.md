@@ -658,6 +658,7 @@ ____________________________________________________________
 - Amanda lendo as pérolas do Lucas, ueh, qual o problema, eu também preciso tomar ferro. - 05/06/2025
 - João: Qual a diferença do mais escuro e do mais claro? - Amanda: O mais escuro é ruim - 12/06/2025
 - Lucas: Amanda você quer sair do Júnior? - Amanda - Quem é Júnior? - 12/06/2025
+- Meu primo tinha uma fantasia do Homem de ferro e pensei que era o Homem Aranha, João: Mas tinha uma aranha? - Amanda: não.
 -----------
 
 # Elvirinho / Vitor
