@@ -289,6 +289,10 @@ Lemos: Diogo, eu bem vi a Cris no mercado ontem. Diogo: 03 de novembro? 16/04/20
 Fontedend do Matthew é horrivel - 28/04/2025
 
 Eu acho a Barbara (rh) legal ela parece um camundonguinho. (eu não falei isso, eu falei que quando ela vem ela vem igual um camundonguinho) 28/04/2025
+
+Não estou ridicularizando a bíblia, apenas as mulheres - 2025-07-21
+
+Larissa é metida e linguaruda - 2025-07-21
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
