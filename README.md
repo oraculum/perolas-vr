@@ -702,3 +702,7 @@ ____________________________________________________________
 ![perola-layanne](https://github.com/user-attachments/assets/d5182ce9-52e8-44d0-bcc8-b0f53e0fa93c)
 
 - Falou que o desenv as vezes não tem lado humano.
+  
+# Larissa
+
+<img width="374" height="26" alt="larissaObrigarorio" src="https://github.com/user-attachments/assets/5fc16a24-14bf-4b21-87cb-880b9548add0" />
