@@ -597,6 +597,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Wanver para Amanda: pode me humilhar que eu gosto de ser humilhado - 05/06/25
 - Agora sem pederastia, não tem como não olhar pra mulher - 23/06/2025
 - Galera contar uma coisa pra voces, quando eu trabalhava no banco do brasil eu era TARADO (tem contexto).... - 25/06/2025
+- Wanver a Amanda emagreceu? - Sim, emagreceu, ta igual o Fernandinho. 30/07/2025
 
 --------
 
