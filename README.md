@@ -375,6 +375,8 @@ Lemos, você vai usar um terno slim mesmo sendo gordo? - 24/06/2022
  Amanda: eu não tenho alergia a nada, Damon: Como diz aquele ditado, vaso ruim não quebra - 09/12/2024
 
  Lemos pro Lucas: Lucas você já usou o Kazza? Damon: eu acho que ele quis dizer casar de casamento não? - 10/03/2025
+
+ Lemos vou pra casa, tomar um banho, alguém vai querer ir comigo - 01/08/2025
 ___________________________________________________________
 
 # perolas Taws/BemaTaws
