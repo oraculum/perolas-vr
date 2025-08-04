@@ -293,6 +293,8 @@ Eu acho a Barbara (rh) legal ela parece um camundonguinho. (eu não falei isso, 
 Não estou ridicularizando a bíblia, apenas as mulheres - 2025-07-21
 
 Larissa é metida e linguaruda - 2025-07-21
+
+Larissa está toda encatarrada - 2025-08-04
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
