@@ -638,6 +638,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Nossa, esqueci de tomar ferro de novo! - 23/01/2024
 - Estava o diogo e nathan conversando sobre fazer um grupo de estudos e o que poderiam estudar. Quando literalmente do nada e SEM SER CONVIDADO PREVIAMENTE, Daedrick e vira pro lado e pergunta pro flopinguim   "Você nao quer participar nao?" - 29/01/2024
 - Nathan é o contrário do ciúme ele é cheio de amor para dar - 1/4/2024
+- engraçado né? A Amanda tava feliz que outra menina iria entrar mas ela n esperava que a Larissa fosse tão sacana quanto os outros. - 07/08/2025
 
 -----------
 
