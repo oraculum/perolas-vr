@@ -603,7 +603,8 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Galera contar uma coisa pra voces, quando eu trabalhava no banco do brasil eu era TARADO (tem contexto).... - 25/06/2025
 - Wanver a Amanda emagreceu? - Sim, emagreceu, ta igual o Fernandinho. 30/07/2025
 - Vocês já viram xana a princesa guerreira? - 12/09/2025
-- Da pra ficar brincando com a minha bolinha aqui em baixo, lá ele - 15/09/2025
+- Da pra ficar brincando com a minha bolinha aqui em baixo - 15/09/2025
+- Amanda você pegou no meu Wilson e apertou o Wilson ainda (sobre a bolinha do setembro amarelo) - 23/09/2025
 
 --------
 
