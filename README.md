@@ -605,6 +605,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Vocês já viram xana a princesa guerreira? - 12/09/2025
 - Da pra ficar brincando com a minha bolinha aqui em baixo - 15/09/2025
 - Amanda você pegou no meu Wilson e apertou o Wilson ainda (sobre a bolinha do setembro amarelo) - 23/09/2025
+- Quando você não gosta da pessoa qualquer coisa incomoda - 2025-09-25
 
 --------
 
