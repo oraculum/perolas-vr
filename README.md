@@ -295,6 +295,8 @@ Não estou ridicularizando a bíblia, apenas as mulheres - 2025-07-21
 Larissa é metida e linguaruda - 2025-07-21
 
 Larissa está toda encatarrada - 2025-08-04
+
+A filha do Renan está trabalhando no portal. Diogo: só se for de coveira né... 2025-10-08
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
