@@ -705,6 +705,7 @@ ____________________________________________________________
 - Amanda, você gosta de carioca ou são paulino? - 14/02/2025
 - Larissa, estão querendo colocar nós contra a gente - 28/05/2025
 - Diogo, fala pra Amanda que ela precisa fazer a unha - 12/06/2025
+- Na entrevista e durante os 3 meses você ser outra pessoa - 24/11/2025
 -----------
 
 # Elviro (vitor)
