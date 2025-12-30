@@ -340,6 +340,8 @@ Damon você quer dormir na minha cama? 27/03/2025 (quando questionado se deixa o
 Parabens do Lemos para o Damon 6/2 
 
 ![](https://p190.p3.n0.cdn.zight.com/items/Wnu9ZxYe/327f9cfb-5a28-4594-9ddf-fb1b8ef92401.jpg?v=ca6bf3ce29679a8ee1466c992393e6b9)
+
+Damon: Pq o pessoal do suporte não conseguiu? Lemos: porque eles não são bons como eu, se fosse eles estariam sentados aqui onde estou. 2025-12-30
 ___________________________________________________________ 
 
 # perolas Damon
