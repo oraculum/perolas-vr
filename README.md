@@ -311,6 +311,8 @@ Todo mundo vê os tombos que levo, mas ninguém vê as pingas que eu tomo. 2025-
 Até parece que Amanda quando entrou na VR era normal - 2026-01-07
 
 Damon: Daqui a pouco eu vou morrer com esse sonho. Diogo: Vai mesmo kkkkkkkkkkkkkkkkkk (rindo da possibilidade do Damon ir a óbito) 2026-02-19
+
+Diogo: você quer uma dica? muda essa meta! (Diogo não confiava que o Fernando iria perder 30kg)
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
