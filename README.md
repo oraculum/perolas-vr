@@ -313,6 +313,8 @@ Até parece que Amanda quando entrou na VR era normal - 2026-01-07
 Damon: Daqui a pouco eu vou morrer com esse sonho. Diogo: Vai mesmo kkkkkkkkkkkkkkkkkk (rindo da possibilidade do Damon ir a óbito) 2026-02-19
 
 Diogo: você quer uma dica? muda essa meta! (Diogo não confiava que o Fernando iria perder 30kg)
+
+Pergunta do diogo para a Leticia: Você cagou? 2026-03-25
 ___________________________________________________________
 
 # Perolas Lemos/Leminha
