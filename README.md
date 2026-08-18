@@ -703,6 +703,7 @@ ____________________________________________________________
 - Eu pensei que gente branca não gostasse de praia - 16/07/2025
 - Olha ali o macaco Diogo! - 23/10/2025
 - Vocês cismam com essa questão de racismo, eu trato os 'pretos' tão bem - 24/07/2026
+- João: Quem é o rei do rock? - Amanda: Michael Jackson - 18/08/2026
 -----------
 
 # Elvirinho / Vitor
