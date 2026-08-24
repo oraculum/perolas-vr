@@ -669,6 +669,7 @@ Boa tarde pessoal. Ontem comprei um sonho no ifood e deixei na geladeira pois co
 - Nathan é o contrário do ciúme ele é cheio de amor para dar - 1/4/2024
 - engraçado né? A Amanda tava feliz que outra menina iria entrar mas ela n esperava que a Larissa fosse tão sacana quanto os outros. - 07/08/2025
 - Larissa, você break my balls - 16/01/2026
+- 13/08/2026 <img width="429" height="123" alt="image" src="https://github.com/user-attachments/assets/2f982971-210e-4915-ad0a-eff148b991a4" />
 
 -----------
 
