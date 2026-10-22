@@ -749,3 +749,7 @@ ____________________________________________________________
 # Larissa
 
 <img width="374" height="26" alt="larissaObrigarorio" src="https://github.com/user-attachments/assets/5fc16a24-14bf-4b21-87cb-880b9548add0" />
+
+# Petrus
+
+- Petrus: antigamente eu era bem gordinho. Diogo: Tipo quem: Petrus: Entre o Lucas e o João.
