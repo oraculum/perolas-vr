@@ -753,3 +753,7 @@ ____________________________________________________________
 # Petrus
 
 - Petrus: antigamente eu era bem gordinho. Diogo: Tipo quem: Petrus: Entre o Lucas e o João.
+
+# Perolas da Emily
+
+- Damon: Olha a emily, ta muito fitness, comendo lanchinho, tava igual a mim, Emily: você também tava fazendo isso? Damon: Tava sim, eu emagreci pra caramba, perdi 10 kg - Emily: Você emagreceu??????
